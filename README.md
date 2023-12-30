@@ -16,4 +16,8 @@ It should be emphasized that for Study 1, I employed two different questionnaire
 
 ## Additional
 
-A modest effort, thank you, Teacher Xiaoxiao. I appreciate you clicking on it and taking a moment to review :)
+This is my little attempt. I sincerely appreciate your time spent clicking on it and exploring this webpage.
+
+By the way, if you have any suggestions, feel free to provide feedback. This presents an opportunity for me to learn and improve. Your insights are highly appreciated as I strive for continual progress.
+
+Thank you, Teacher Xiaoxiao :)
